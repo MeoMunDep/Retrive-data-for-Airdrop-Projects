@@ -1,1 +1,1 @@
-### 你好，我是一只小黑猫^^
+Jika semua repo mencapai 100 bintang, saya akan merilisnya ^^
